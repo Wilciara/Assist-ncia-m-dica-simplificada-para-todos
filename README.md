@@ -1,6 +1,6 @@
 
 
-#  🍿   # Assist-ncia-m-dica-simplificada-para-todos
+#  🍿   # Assistência médica simplificada para todos
 
 
 ***
