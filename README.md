@@ -25,6 +25,7 @@ https://www.loom.com/share/a2744d03865848bf89817e52e217b112
 
 # 🚧👷🏻‍♀️ Em construção, continua...   
 ***
+![image](https://user-images.githubusercontent.com/94201226/180648113-a38243c1-2603-4749-8598-b9624a9b234d.png)
 
 
 ***
